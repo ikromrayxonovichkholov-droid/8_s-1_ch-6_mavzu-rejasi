@@ -1,0 +1,1 @@
+# 8_s-1_ch-6_mavzu-rejasi
